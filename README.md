@@ -8,7 +8,8 @@ Here are some fun facts of me :
 - 🔭 I’m currently studing in Jânio Quadros-SP.
 - 🌱 I’m currently learning GitHub.
 
-- 📫 How to reach me: ...
+- 📫 How to reach me: aislansouza687@gmail.com
 - 😄 Pronouns: ele/dele
-- ⚡ Fun fact: ...
+
+![](https://tenor.com/pt-BR/view/whatever-really-unimpressed-meh-blank-gif-18328132645123959172)
 
