@@ -11,5 +11,5 @@ Here are some fun facts of me :
 - 📫 How to reach me: aislansouza687@gmail.com
 - 😄 Pronouns: ele/dele
 
-https://tenor.com/pt-BR/view/whatever-really-unimpressed-meh-blank-gif-18328132645123959172
+https://tenor.com/pt-BR/view/whatever-really-unimpressed-meh-blank-gif
 
