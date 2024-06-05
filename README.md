@@ -12,5 +12,5 @@ Here are some fun facts of me :
 - 😄 Pronouns: ele/dele
 
   -[Alura](https://www.alura.com.br)
-  ![](https://tenor.com/vZ5cLsUmLke.gif)
+  -![](https://tenor.com/vZ5cLsUmLke.gif)
 
